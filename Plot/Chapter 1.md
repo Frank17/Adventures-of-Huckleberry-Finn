@@ -1,8 +1,12 @@
 ## Background
-- Huck and Tom (main character in the book *The Adventures of Tom Sawyer*; Huck's best friend) gets a considerable fortune of 
+- Huck and Tom (main character in the book *The Adventures of Tom Sawyer*; Huck's best friend) got a considerable fortune of $6000 apiece through an adventure, and the local judge Thatcher promised to give them each one dollar per day while keeping the rest in the bank
+- A widow by the name of Douglas took Huck as her son and let him live with her
 
 ## Summary
--
+- Dougals tried to "sivilize" Huck and make him behave like a decent boy; However, Huck hated to be bound by these rules and managed to break them whenver he had a chance
+- Miss Watson, Dougals's sister, had came to live with them and put on even stricter rules and educations Huck had to listen to
+- When Huck went to bed, he felt everything was hopeless and mournful. He then killed a spider by accident, which convinced him that bad luck had came for him
+- To Huck's surprise, his buddy Tom was right outside and gave him signals. He quckly climbed over the wall to met Tom
 
 ## Interesting ideas
 > "... when [Huck] couldn't stand it longer [he] lit out. [Huck] got into
