@@ -1,7 +1,7 @@
-**Background
+##Background
 
 
-**Summary
+##Summary
 - Huck and Tom went on a path among the woods to leave Douglas's garden; however, Douglas's slave Jim quickly noticed their presence as Huck triped on a root and walked around to see what's going on.
 - Upon hiding themselves carefully, Huck felt extreme itches all over the body but managed to not making any sound
 - Jim fell asleep after a while; H&T got out quietly, and Huck convinced Tom to not do anything over the top
